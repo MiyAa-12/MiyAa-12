@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil MiyAa-12 😁
+## Bem-vindo(a) ao meu perfil me chamo Miyabe 😁
 
  <div>
    <a href="https://github.com/MiyAa-12">
